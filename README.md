@@ -1,2 +1,1 @@
-# newProject
-# newProject
+#2-mustaqil ish Akmaljon
